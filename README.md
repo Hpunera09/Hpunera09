@@ -28,7 +28,7 @@
 
 ## 📫 Let's Connect
 - 📧 Email: [harshitpunera8@gmail.com]
-- 💼 LinkedIn: [linkedin]((https://www.linkedin.com/in/harshitpunera09?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BdROUzBWBSgmnHkOqoWfXNA%3D%3D))
+💼 LinkedIn: [linkedin.com/in/harshitpunera](https://www.linkedin.com/in/harshitpunera09/)
 
 > _“Learning never exhausts the mind.” – Leonardo da Vinci_
 
